@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @R3TR0xXxR3DIAL-TTOSEAOO OR Joe
+- 👀 I’m interested in: Coding/Programming, Engineering, (~ethical)Hacking,
+- 💞️ I’m looking to collaborate on: Code(of any kind), Creative projects (like circuitry, vehicals, Art/Music/DIGITAL DESIGN, and other inovative ideas)
+- 📫 How to reach me: (uglyduckling0052@protonmail.com)
+- 👾👻💀 Join Us: Join my team (TTOSEAOO) were we fight all cyber injustice with applicable destruction. 
